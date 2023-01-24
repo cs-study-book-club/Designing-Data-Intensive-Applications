@@ -4,9 +4,9 @@
 안종훈 : https://jealous-texture-9af.notion.site/1-fce7b388275b493ca9beb3af32fb74be
 
 ### 2주차
-안종훈 :  https://jealous-texture-9af.notion.site/2-4e49b976b1b247598d595115b67dd522
+안종훈 :  https://jealous-texture-9af.notion.site/2-4e49b976b1b247598d595115b67dd522 <br/>
 임태빈 : https://www.notion.so/2-0bf6bf1e00104aa096190c4a6cc1af8c
 
 ### Contributors
-안종훈
+안종훈<br/>
 임태빈
