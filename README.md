@@ -5,3 +5,7 @@
 
 ### 2주차
 안종훈 :  https://jealous-texture-9af.notion.site/2-4e49b976b1b247598d595115b67dd522
+
+
+### Contributors
+@JonghunAn
