@@ -1,7 +1,7 @@
 ## 데이터중심 어플리케이션 설계
 
 ### 1주차
-안종훈 : https://jealous-texture-9af.notion.site/1-fce7b388275b493ca9beb3af32fb74be
+안종훈 : https://jealous-texture-9af.notion.site/1-fce7b388275b493ca9beb3af32fb74be <br/>
 서정한 : https://wobbly-smell-e1c.notion.site/1-ee001813578c4bbdbe5aa016d6fbe5e6
 
 ### 2주차
