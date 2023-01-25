@@ -2,6 +2,7 @@
 
 ### 1주차
 안종훈 : https://jealous-texture-9af.notion.site/1-fce7b388275b493ca9beb3af32fb74be
+서정한 : https://wobbly-smell-e1c.notion.site/1-ee001813578c4bbdbe5aa016d6fbe5e6
 
 ### 2주차
 안종훈 :  https://jealous-texture-9af.notion.site/2-4e49b976b1b247598d595115b67dd522 <br/>
