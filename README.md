@@ -5,7 +5,8 @@
 
 ### 2주차
 안종훈 :  https://jealous-texture-9af.notion.site/2-4e49b976b1b247598d595115b67dd522 <br/>
-임태빈 : https://www.notion.so/2-0bf6bf1e00104aa096190c4a6cc1af8c
+임태빈 : https://www.notion.so/2-0bf6bf1e00104aa096190c4a6cc1af8c <br/>
+이주형 : https://trusted-aftermath-0ba.notion.site/2-d2e418a2bd1048be843d63fb9fec1aa6
 
 ### Contributors
 안종훈<br/>
