@@ -12,7 +12,7 @@
 
 ### 3주차
 이주형 : https://trusted-aftermath-0ba.notion.site/3-56869a1e8d254293b58c58728b5f9ae6
-
+서정한 : https://wobbly-smell-e1c.notion.site/3-7466e43bccf04d8699699bf92ab891e0
 ### Contributors
 안종훈<br/>
 임태빈
