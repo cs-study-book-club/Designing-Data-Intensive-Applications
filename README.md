@@ -12,7 +12,8 @@
 
 ### 3주차
 이주형 : https://trusted-aftermath-0ba.notion.site/3-56869a1e8d254293b58c58728b5f9ae6 <br/>
-서정한 : https://wobbly-smell-e1c.notion.site/3-7466e43bccf04d8699699bf92ab891e0
+서정한 : https://wobbly-smell-e1c.notion.site/3-7466e43bccf04d8699699bf92ab891e0 <br/>
+박재민 : https://honeysuckle-hotel-5e8.notion.site/3-3d40cfe115be4751b47ee67c8d1466c0
 ### Contributors
 안종훈<br/>
 임태빈
