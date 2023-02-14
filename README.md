@@ -19,6 +19,7 @@
 
 ### 5주차
 임태빈 : https://mica-pluto-49a.notion.site/4-9abb9a976a994152a567c40a28731328 <br/> 
+서정한 : https://wobbly-smell-e1c.notion.site/5-d19e1c286fad41619eccd84c0d124319 <br/>
 
 ### Contributors
 안종훈<br/>
