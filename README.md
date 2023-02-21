@@ -21,6 +21,9 @@
 임태빈 : https://mica-pluto-49a.notion.site/4-9abb9a976a994152a567c40a28731328 <br/> 
 서정한 : https://wobbly-smell-e1c.notion.site/5-d19e1c286fad41619eccd84c0d124319 <br/>
 
+### 6주차
+이주형 : hhttps://trusted-aftermath-0ba.notion.site/6-782ee29a722745a4a7377f4c8d27a53a <br/>
+
 ### Contributors
 안종훈<br/>
 임태빈
