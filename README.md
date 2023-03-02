@@ -23,7 +23,7 @@
 
 ### 6주차
 이주형 : https://trusted-aftermath-0ba.notion.site/6-782ee29a722745a4a7377f4c8d27a53a <br/>
-서정한 : 
+서정한 : https://wobbly-smell-e1c.notion.site/6-a96751aae6bd47b1a79c4d0e7fdfc343
 ### 7주차
 이주형 : https://trusted-aftermath-0ba.notion.site/7-f47b4a3550434ad5adb639993351ed2e <br/>
 서정한 : https://wobbly-smell-e1c.notion.site/6-a96751aae6bd47b1a79c4d0e7fdfc343
