@@ -29,6 +29,7 @@
 서정한 : https://wobbly-smell-e1c.notion.site/7-1d5c29f0b7f04c51b705b2a044c8fe7a
 
 ### 9주차
+이주형 : https://trusted-aftermath-0ba.notion.site/9-f5372ab5c49941d98dda87cab36c2709 <br/>
 
 ### Contributors
 안종훈<br/>
