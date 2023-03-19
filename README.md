@@ -30,7 +30,7 @@
 
 ### 9주차
 이주형 : https://trusted-aftermath-0ba.notion.site/9-f5372ab5c49941d98dda87cab36c2709 <br/>
-
+서정한 : https://wobbly-smell-e1c.notion.site/9-41cba78883a84863ab0d43a0a72e0d7f
 ### Contributors
 안종훈<br/>
 임태빈
